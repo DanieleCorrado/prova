@@ -8,4 +8,3 @@ gxdfgdfg
 LA MIA MODIFICA MADAFFAKKA
 gbvdgserg
 Ammazza kill & go
-zkcbvk<jbvk<shdbvjh<bsdvhb<sdfhdvb<sjhbvu<sdgy
